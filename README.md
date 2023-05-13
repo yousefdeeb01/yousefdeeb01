@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yousefdeeb01
-- 👀 I’m interested in Mechanics and Electronics
+- 👀 I’m interested in Robotics
 - 🌱 I’m currently learning Mechatronics Engineering
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me @yousefdeeb01 on facebook and instagram, or email me @ oneman.yomna@gmail.com 
